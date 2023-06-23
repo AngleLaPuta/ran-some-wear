@@ -1,0 +1,1 @@
+hey so like. this is in fact a ransomware. it doesnt really work. but oh well
